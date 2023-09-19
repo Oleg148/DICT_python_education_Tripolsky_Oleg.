@@ -1,1 +1,2 @@
-Oleg Tripolsky 519ÑĞÑCT
+Oleg Tripolsky 519Ñï¿½ï¿½CT
+Nadia Volodymyrivna Kozhemiakina
